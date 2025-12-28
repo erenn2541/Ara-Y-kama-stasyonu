@@ -1,1 +1,1 @@
-# Ara Yikama istasyonu
+# Arac Yikama istasyonu
